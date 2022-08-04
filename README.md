@@ -1,5 +1,5 @@
-# Hello, I am Arina 👩🏻‍💻👋🏻
-## I am Project Manager in IT, Front-end Developer, & UI/UX Designer 👩🏻‍💻🤍 
+# Hello, I am Arina 👩🏻‍💻👋🏻 
+I am Project Manager in IT, Front-end Developer, & UI/UX Designer 👩🏻‍💻🤍 
 
-- I like doing science 🧪 
-- Currently working on research papers 
+Currently: Bachelor Degree ICT in Astana IT University at Kazakhstan 
+ 
